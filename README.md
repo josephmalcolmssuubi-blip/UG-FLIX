@@ -1,1 +1,1 @@
-# UG-FLIX
+# UGA-FLIX
